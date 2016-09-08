@@ -11,11 +11,11 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 
 ## 23 SEP 2016 (Max 10)
 * Benjamin Anderson
+* Patrick McLaren
 
 ## 21 OCT 2016 (Max 10)
 * Max Benson
 * Michael Kaliman
-* Joe Meszar
 
 ## 04 NOV 2016 (Max 10)
 * Steven Saylor
